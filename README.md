@@ -15,7 +15,7 @@
 
 ---
 ### 点击下载最新客户端
-#### :arrow_double_down: [国内官网链接](https://cwtcn.jsq888.com/)
+#### :arrow_double_down: [国内官网链接](https://cwtcn.mnfmoy.com)
 #### :arrow_double_down: [永久官网链接](https://www.hellocham.com/zh-hans)
 #### :arrow_double_down: [iOS 下载](https://cl.shortapp.net/d/ios)
 #### :arrow_double_down: [Mac 下载](https://cwtcn.jsq888.com/d/cham/cham_mac.pkg)
